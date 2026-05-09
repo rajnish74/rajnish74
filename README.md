@@ -27,7 +27,7 @@
 
 📫 Reach me at:
 
-* Email: [rajnishk748193-email@gmail.com](mailto:rajnishk748193email@gmail.com)
+* Email: [rajnishk748193@gmail.com](mailto:rajnishk748193email@gmail.com)
 
 ⚡ Fun fact:
 Consistency beats talent every time 🚀
